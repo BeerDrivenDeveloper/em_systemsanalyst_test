@@ -1,0 +1,1 @@
+## Тестовое задание Junior SA для Effective Mobile
